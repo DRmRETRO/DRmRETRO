@@ -4,9 +4,4 @@
 <p align="center"> $${\color{#D79D5F}"I \space am \space a \space daughter \space of \space Eve."}$$ </p>
 <p align="center"> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1297_20260802074243.png" width=360> </p>
 <p align="center"> $${\color{#D5985F}any \space / \space all \space!}$$ </p>
-<div align="center">
-  
-  [Rentry!](https://rentry.co/DrRETRO-Hostess)
-
-</div>
 <p align="center"> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1295_20260802073808.png" width=720> </p>
