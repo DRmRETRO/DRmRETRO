@@ -10,6 +10,8 @@
   ⋆ $${\color{#D5985F}Always\ IAYOR!}$$ ˚ ༘ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Agender_pride_flag.svg.png" width=15 height=10><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Asexual_Flag.webp" width=15 height=10><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Pansexuality_Pride_Flag.svg.png" width=15 height=10><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Ambiamorous_Flag.png" width=15 height=10> ໒꒱
   <br>
   <a href="https://drmretro.straw.page/">Straw Page!</a> 𝜗ৎ
+  <br>
+  <img src="https://readme-typing-svg.herokuapp.com?font=Bigelow+Rules&size=23&pause=1000&color=CFBD69&width=435&lines=They+try+to+tell+me;Tell+me+I'm+wrong.;But+the+mirrors+tell+lies+to+me;My+mind+just+plays+along;The+world+is+a+sick+place;At+least+for+a+girl;The+people+want+beauty%2C+skinny%2C+always+wins;And+I+don't+have+enough+of+it;I'll+never+have+of+it)](https://git.io/typing-svg" />
 </div>
               <br>
   </td>
