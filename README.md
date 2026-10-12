@@ -27,6 +27,6 @@
   <summary>My own Regretevator designs!</summary>
     <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled10_20260925191941.png" width=250></img><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled14_20260925191836.png" width=300></img><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled24_20260925200357.png" width=225></img>
   <br>
-  <small>Poob</small>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<small>Bive</small>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<small>RETRO</small>
+  <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled55_20261012182425.png" width=225></img><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled56_20261012192017.png" width=225></img>
 </details>
 </div>
